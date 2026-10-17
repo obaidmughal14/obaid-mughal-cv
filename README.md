@@ -1,6 +1,6 @@
 # Obaid Mughal — Digital Marketer, Web Developer & Social Media Strategist
 
-> 📄 **[Download the CV (PDF)](./Obaid-Mughal-CV.pdf)**
+> 📄 **[Download the CV (PDF)](https://obaidasiaone-obaid-mughal-website.static.hf.space/Obaid-Mughal-Resume.pdf)**
 
 Passionate Digital Marketer and Web Developer based in **Karachi, Pakistan**, currently working as a **Social Media Executive at Asia One**. I build strong online communities, craft engaging content, and drive measurable growth across digital platforms — connecting design, visibility, and engagement into one cohesive digital strategy.
 
